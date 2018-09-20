@@ -1,2 +1,2 @@
 #Instrucciones
-juancamilo es muy guapo
+hoy es jueves
